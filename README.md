@@ -296,9 +296,6 @@ Passionate about
 - Agentic AI Systems
 - Large Language Models
 
-LinkedIn: *Add Your Profile*
-
-GitHub: *Add Your Profile*
 
 ---
 
